@@ -1,0 +1,1 @@
+# losvera-assets
